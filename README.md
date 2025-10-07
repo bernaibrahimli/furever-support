@@ -2,7 +2,7 @@
 # Furever Support
 
 For support with Furever, please contact:
-- Email: yourname@email.com
+- Email: bernaibrahimli@gmail.com
 
 ## Frequently Asked Questions
 
